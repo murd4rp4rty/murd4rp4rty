@@ -1,0 +1,5 @@
+- I'm @murd3rp4rty
+- I'm learning how to use GibHub and Visual Studio
+- I am willing to collaberte on BL3 Mods and helping anyway I could
+- I have been doing it the hard ways by loading Nexusmods
+- Contact via email murd3rp4rty@gmail.com via steam snugglepuppies via Discord murderpuddles#6409
